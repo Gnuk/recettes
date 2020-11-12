@@ -47,11 +47,11 @@ Faire préchauffer le four à 180° en chaleur tournante.
 Commencer par découper l'oignon en lamelles ainsi que la gousse d'ail en petits morceaux.
 
 
-Poser la poêle sur une plaque de cuisson à feu moyen et ajouter un filet d'huile d'olive. Incoroprer ensuite l'oignon et l'ail et surveiller que les oignons ne crament pas en ajustant la puissance du feu.
+Poser la poêle sur une plaque de cuisson à feu moyen et ajouter un filet d'huile d'olive. Incorporer ensuite l'oignon et l'ail et surveiller que les oignons ne crament pas en ajustant la puissance du feu.
 
 Découper l'aubergine en dés de moins d'un demi centimètre et les poivrons en lamelles puis chaque lamelles en trois morceaux chacune. Ajouter les légumes dans la poêle avec du sel, du poivre et des herbes de provence à votre convenance.
 
-Découper les courgettes en rondelle (environ 1 demi centimètre par rondelle) et les tomates en morceaux.
+Découper les courgettes en rondelles (environ 1 demi centimètre par rondelle) et les tomates en morceaux.
 
 Ajouter l'ensemble, surveiller le feu pour que le mélange soit cuit pendant la préparation du crumble.
 
